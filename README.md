@@ -1,0 +1,1 @@
+# khsemi5_onedayclass
